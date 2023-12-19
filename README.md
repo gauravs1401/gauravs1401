@@ -29,5 +29,5 @@ I'm currently honing my skills in:
 
 Feel free to reach out for collaboration, discussions, or just to connect:
 
-- 📧 Email: gaurav.shukla@hpe.com
+- 📧 Email: 1000gauravshukla@gmail.com
 - 💼 LinkedIn: www.linkedin.com/in/gaurav-shukla-9579ba14a
